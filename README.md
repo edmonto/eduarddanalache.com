@@ -1,2 +1,0 @@
-# eduarddanalache.com
-Personal website
